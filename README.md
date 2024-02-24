@@ -1,6 +1,6 @@
 # How to contact customer care at United Airline? call +1800 794 0429
 
-United Airlines Customer Service call on **+1 800 794 0429**
+United Airlines Customer Service call on **+1 800 794 0429**.
 You can share positive feedbacks ,ask your queries or register your complaints by contacting the united airlines under their customer care section on the official united airlines website or you can directly call them on (OTA) **+1 800 794 0429** (No-waiting) or United airline number + 1 800 United 864 8331 for united customer service.
 **Through phone**
 To reach United Airlines customer care service via phone, customers can dial the airline's customer service number (OTA) **+1 800 794 0429** or United airline number + 1 800 864 8331 which is available on their official website. Upon calling, customers will be connected to a representative who can assist with various inquiries, such as booking assistance, flight information, baggage queries, and more.
